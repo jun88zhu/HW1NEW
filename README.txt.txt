@@ -1,2 +1,0 @@
-JUN ZHU
-LAKERS
